@@ -7,3 +7,4 @@
     Adjei-Kwafo Kwabena Glenn -10329091
     Promise Nobel Lapoa -10334435
     Kwafo Eugene - 10318698
+    Bernard Kwaade -10334024
